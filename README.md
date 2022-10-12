@@ -2,3 +2,4 @@
 
 kon h kon h btao ?
 hame nahi ptaa.....
+kyuuu nahi pta?
